@@ -13,5 +13,3 @@ alterado e atualizado
 
 
 alterando novamente
-
-essa ateração vale
